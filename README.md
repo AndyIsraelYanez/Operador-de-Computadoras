@@ -20,3 +20,11 @@ https://www.youtube.com/watch?v=wrMYDXkZNrQ
 https://www.youtube.com/watch?v=GpLQ8Z_Oz3I
 
 
+## AntiVirus Gratis
+
+Sophos-
+Total AV-
+Avira-
+Malwarebytes-
+Avast-
+AVG-
